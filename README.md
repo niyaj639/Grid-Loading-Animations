@@ -21,7 +21,7 @@ This resource can be used freely if integrated or build upon in personal or comm
 
 ## Misc
 
-Follow Sk Niyaj Ali: [Twitter](http://www.twitter.com/skniyajali1), [Facebook](http://www.facebook.com/skniyajali2), [Google+](https://plus.google.com/106639301218429295193), [GitHub](https://github.com/niyaj320), [Pinterest](http://www.pinterest.com/Niiyaj Ali/), [Instagram](https://www.instagram.com/skniyajali2/)
+Follow Sk Niyaj Ali: [Twitter](http://www.twitter.com/skniyajali1), [Facebook](http://www.facebook.com/skniyajali2), [Google+](https://plus.google.com/106639301218429295193), [GitHub](https://github.com/niyaj320), [Pinterest](http://www.pinterest.com/NiiyajAli/), [Instagram](https://www.instagram.com/skniyajali2/)
 
 [© Sk Niyaj Ali 2017](https://www.skniyaj.blogspot.com)
 
